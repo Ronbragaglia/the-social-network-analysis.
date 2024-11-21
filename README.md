@@ -53,5 +53,19 @@ Página oficial do filme no IMDb: IMDb - The Social Network
 Artigos sobre o impacto do filme na indústria de tecnologia.
 Tutoriais usados para aprender a aplicar análises e visualizações.
 
+![image](https://github.com/user-attachments/assets/ec9e0cda-ad7d-44e4-b114-e99de488d8dd)
+
+![image](https://github.com/user-attachments/assets/76fedcb0-a1a4-44cc-b134-3b2f5913c572)
+
+![image](https://github.com/user-attachments/assets/4028835f-77c0-457f-8fbf-eac1060d95c0)
+
+![image](https://github.com/user-attachments/assets/9c9eab17-a302-4ec6-87c1-fdcbaa4598c7)
+
+
+
+
+
+
+
 
 
