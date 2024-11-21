@@ -61,6 +61,12 @@ Tutoriais usados para aprender a aplicar análises e visualizações.
 
 ![image](https://github.com/user-attachments/assets/9c9eab17-a302-4ec6-87c1-fdcbaa4598c7)
 
+![image](https://github.com/user-attachments/assets/c3b84817-f34a-47c0-b6cd-ac093e97b2bd)
+
+![image](https://github.com/user-attachments/assets/078acf2d-a5d9-4323-85bf-8131d444ff64)
+
+
+
 
 
 
